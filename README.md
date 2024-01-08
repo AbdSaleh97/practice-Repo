@@ -14,7 +14,7 @@
 | Target | Hit date | Method of assanation |
 |------|-----|--------|
 | Tona| 25/2/2024  | Lazer eyes   |
-| House owner | 30/4/2024  | Feather destraction |
+| House owner | 30/4/2024  | Fur destraction |
 
 
 
